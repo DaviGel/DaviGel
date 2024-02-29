@@ -1,1 +1,1 @@
-![RXi9](https://github.com/DaviGel/DaviGel/assets/18364233/0890cf5f-6842-4193-885b-63c3a3624740)
+![NvL](https://github.com/DaviGel/DaviGel/assets/18364233/10be9f16-80f5-45d2-8738-9a0b7778f645)
